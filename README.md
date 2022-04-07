@@ -1,1 +1,1 @@
-# kartik-singh
+# Kartik-Singh
